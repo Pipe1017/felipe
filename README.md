@@ -1,1 +1,2 @@
-# felipe
+# Felipe Ruiz
+# Mechanical Engineer
